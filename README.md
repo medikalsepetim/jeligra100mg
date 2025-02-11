@@ -18,4 +18,5 @@ Jeligra, genellikle iyi tolere edilen bir ilaçtır. Ancak bazı kullanıcılard
 ❌ **Nitrat içeren ilaçlarla birlikte alınmamalıdır**, ciddi tansiyon düşüklüğüne neden olabilir.  
 
 Jeligra 100 mg, **sertleşme sorununa etkili bir çözüm sunarken, doktor önerisiyle kullanılması gereken bir ilaçtır**. Sağlıklı ve güvenli bir kullanım için talimatlara uyulmalıdır.
+
 Daha fazla bilgi için: [Jeligra 100 mg Resmi Web Sitesi](https://www.jeligra100mg.org/)
